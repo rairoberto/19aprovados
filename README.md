@@ -13,7 +13,7 @@ Porém ainda temos 19 colegas aprovados para o cargo de Perito Criminal Federal 
 Precisamos de apoio pra autorizar a convocação de todos os aprovados nesse último concurso.
 @aprovadospf2018 #nomeiaos19peritospresidente 
 ```
-Normalmente os principais comentários são feitos pelo perfil do [@davidclebson](https://www.instagram.com/davidclebson/), porém outras pessoas podem ter comentado também.
+Normalmente os principais comentários são feitos pelo perfil do [@davidclebson](https://www.instagram.com/davidclebson/) ou pelo perfil [@aprovadospf](https://www.instagram.com/aprovadospf2018/), porém outras pessoas podem ter comentado também.
 
 
 ### Presidente Jair Bolsonaro
