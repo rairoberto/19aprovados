@@ -1,3 +1,15 @@
+# Página para auxiliar o apoio nas redes sociais
+
+Serão postados aqui os links dos posts nos quais precisamos de apoio.
+
+Vale uma curtida no post, nos comentários sobre os 19 peritos que estão de fora do decreto e também um comentário de apoio a causa.
+
+Você pode usar este modelo de comentário:
+
+```markdown
+A meta é fortalecer a PF para fortalecer o Brasil! Muito obrigado pelo apoio a nosso guerreiros! Porém ainda temos 19 colegas aprovados para o cargo de Perito Criminal Federal que não foram incluídos no decreto. Precisamos de apoio pra autorizar a convocação de todos os aprovados nesse último concurso.
+```
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/rairoberto/19aprovados/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
