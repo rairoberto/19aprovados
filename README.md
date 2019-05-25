@@ -35,6 +35,10 @@ Normalmente os principais comentários são feitos pelo perfil do [@davidclebson
 
 [Clique aqui para abrir](https://www.instagram.com/p/Bx2jzQ2BA6s/)
 
+### Deputada Federal Bia Kicis
+
+[Clique aqui para abrir](https://www.instagram.com/p/Bx3eAdYFvS9/)
+
 ### 
 
 [Clique aqui para abrir]()
@@ -43,3 +47,10 @@ Normalmente os principais comentários são feitos pelo perfil do [@davidclebson
 
 [Clique aqui para abrir]()
 
+### 
+
+[Clique aqui para abrir]()
+
+### 
+
+[Clique aqui para abrir]()
