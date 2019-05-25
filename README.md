@@ -15,13 +15,10 @@ Precisamos de apoio pra autorizar a convocação de todos os aprovados nesse úl
 ```
 Normalmente os principais comentários são feitos pelo perfil do [@davidclebson](https://www.instagram.com/davidclebson/), porém outras pessoas podem ter comentado também.
 
-### Delegado Luciano Soares Leiro
 
-[Clique aqui para abrir](https://www.instagram.com/p/Bx2PGodDz7I/)
+### Presidente Jair Bolsonaro
 
-### Delegado Rony Silva
-
-[Clique aqui para abrir](https://www.instagram.com/p/Bx2TbW0DYLX/)
+[Clique aqui para abrir](https://www.instagram.com/p/Bx2jzQ2BA6s/)
 
 ### Deputado Federal Felício Laterça
 
@@ -30,10 +27,6 @@ Normalmente os principais comentários são feitos pelo perfil do [@davidclebson
 ### Deputada Federal Carla Zambelli
 
 [Clique aqui para abrir](https://www.instagram.com/p/Bx2asHCHaL6/)
-
-### Presidente Jair Bolsonaro
-
-[Clique aqui para abrir](https://www.instagram.com/p/Bx2jzQ2BA6s/)
 
 ### Deputada Federal Bia Kicis
 
@@ -47,7 +40,13 @@ Normalmente os principais comentários são feitos pelo perfil do [@davidclebson
 
 [Clique aqui para abrir](https://www.instagram.com/p/Bx2j_OsAuCZ/)
 
+### Delegado Luciano Soares Leiro
 
+[Clique aqui para abrir](https://www.instagram.com/p/Bx2PGodDz7I/)
+
+### Delegado Rony Silva
+
+[Clique aqui para abrir](https://www.instagram.com/p/Bx2TbW0DYLX/)
 
 
 Muito obrigado pelo apoio!
